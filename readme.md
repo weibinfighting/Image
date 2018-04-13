@@ -1,2 +1,2 @@
-These images are uploaded for my [blog](www.weibinqu.xyz)
+These images are uploaded for my [blog](https://www.weibinqu.xyz/)
 
